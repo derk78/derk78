@@ -22,7 +22,9 @@ I am currently a student at my home high school, Evergreen High School while att
 
 ### Contact Info
 
-You can always email me at **williamsdj503@gmail.com** or contact me on my cellphone (720-400-6216).
+You can always email me at **williamsdj503@gmail.com** or text me on my cellphone at (720-400-6216).
+
+
 <!--
 **derk78/derk78** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
