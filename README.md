@@ -22,7 +22,7 @@ I am currently a student at my home high school, Evergreen High School while att
 
 ### Contact Info
 
-You can always email me at **williamsdj503@gmail.com** or text me on my cellphone at (720-400-6216).
+You can always email me at **williamsdj503@gmail.com** 
 
 
 <!--
